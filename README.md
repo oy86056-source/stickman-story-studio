@@ -1,1 +1,0 @@
-# stickman-story-studio
